@@ -10,6 +10,11 @@
 <br> I am 18 , I turn 19 in August . You may interact , but
 <br>  depending on your age range I may not respond back . 
 
+<br> If you wonder, I do profile commissions too .
+<br> Discord, Github, whatever. Just ask what I do.
+<br> My price is whatever you're willing to pay with.
+<br> I trust Nitro , Robux & Whatever game currency.
+
 <br> After this point will be about me . Pronouns , Age , 
 <br> and much more personal / detailed information . If you
 <br> have a sensitivity of not liking to read people's
