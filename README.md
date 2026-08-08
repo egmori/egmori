@@ -1,8 +1,8 @@
  <div align="center"> 
 
-![](https://files.catbox.moe/6z3dd1.png)
+![](https://files.catbox.moe/7cyxc0.png)
 
-<img src="https://visitor-badge.laobi.icu/badge?page_id=egmori.egmori&left_color=LightBlue&left_text=Fans:"/>
+<img src="https://visitor-badge.laobi.icu/badge?page_id=egmori.egmori&left_color=darkgreen&right_color=black&left_text=MIRAHQ+Eggs:"/>
 
 <br> ㅤ  ׅ    ۫   𐂯ᩙ᩠𓏼    ׄ   ♡゙    ̹ ̜ㅤ
 
@@ -23,7 +23,7 @@
 <br> However, Scroll how you please . I obviously cannot
 <br> stop you no matter what I do . Take care . < 3 Fran .
 
-![](https://files.catbox.moe/d577mg.png)
+![](https://files.catbox.moe/3tjwr5.png)
 
 <br> Egmori , Fran(cis) or Martyr
 
@@ -37,7 +37,7 @@
 <br> BPD , Autism , ADHD & OSDD .
 <br> Yes, I have all of these .
 
-![](https://files.catbox.moe/d577mg.png)
+![](https://files.catbox.moe/3tjwr5.png)
 
 <br>  ㅤ  ׅ    ۫   𐂯ᩙ᩠𓏼    ׄ   ♡゙    ̹ ̜ㅤ
 
@@ -56,7 +56,7 @@
 
 If you don't see anything you like on here, ASK! I may recognize it.
 
-![](https://files.catbox.moe/d577mg.png)
+![](https://files.catbox.moe/3tjwr5.png)
 
 <br>  ㅤ  ׅ    ۫   𐂯ᩙ᩠𓏼    ׄ   ♡゙    ̹ ̜ㅤ
 
@@ -75,4 +75,4 @@ If you don't see anything you like on here, ASK! I may recognize it.
 <br> I don't care about people that refuse to tell me their boundaries
 <br> I DO NOT CARE IF YOU HAVE TT/TD . I LITERALLY DONT. NOTHING CAN MAKE ME CARE ! ! !
 
-![](https://files.catbox.moe/2by8f6.png)
+![](https://files.catbox.moe/g4gs1p.png)
